@@ -1,3 +1,3 @@
 # present-repo
 
-HEY FUCKERS, aryan wants to get fucked by you
+HEY FUCKERS, aryan wants to get fucked by everyone
